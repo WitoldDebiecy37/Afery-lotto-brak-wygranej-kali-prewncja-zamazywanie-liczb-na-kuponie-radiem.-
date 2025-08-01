@@ -1,0 +1,1 @@
+# Afery-lotto-brak-wygranej-kali-prewncja-zamazywanie-liczb-na-kuponie-radiem.-
