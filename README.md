@@ -8,3 +8,4 @@ Rozwój nanotechnologi i radio drukarek kwantowych może wpłynąć na rozwój n
 Rozwój nanotechnologi może wpłynać na porzegananie się z lotto bez ryzyka i inwestowanie w stabilne ETF. 
 Wyjście z kryzysu i nie poleganie na Brystolu to handel nanomateriałami do produkcji np.: sprzętu medycznego lub muzycznego. 
 Radio drukarki kwantowe mogą drukować Brystol w dużej ilości zużyte sztucice z papieru można spalić w piecu aby wyprodukować energie elektryczną i znów je wydrukować. A nanomateriały stosować w przemyśle innym niż karze nam kura i kogut. A to są już przmysły z bajek i snów nie dla psa i nie dla sparty legi przestań 112 psa. 
+Nie ma brystolu nie mają maskary modelki koców czy płaszczy i mebli. 
