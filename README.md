@@ -1,4 +1,4 @@
-# Afery-lotto-brak-wygranej-kali-prewncja-zamazywanie-liczb-na-kuponie-radiem.-
+# Afery-lotto-brak-wygranej-kali-prewncja-zamazywanie-liczb-na-kuponie-radiem.- Afery Postów post mafi. 
 Kali prewencja zamzauje liczby na kuponie aby nie można było wygrać w lotto szczśliwe numery tak samo z innymi sposobami oszczędności też jest loteria kali prewncja. Kali prewncja chce zmusić ludzi do ślubów i orzenków za bułeczkę czy za 100 zł czy 100 funtów to są ci ludzie od ślubów za karę zablkowali lotto i oszczędności. 
 Kali prewnecja i matoły cyber siciurity nie chcą radio drukarek kwantowych w banku do drukowania pieniedzy za miast tradycyjnego portfela elektronicznego na BTC. 
 Ta policja choruje na autyzm i schizofremie łapania za zło czyli np.: post mafia kali prewncja łapie za duże zakupy w sklepie. A nie łapie za małe post zakupy. 
@@ -7,3 +7,4 @@ Jest wyjście z tej biedy lotto brystolu to rozwój radio drukarek kwantowych i 
 Rozwój nanotechnologi i radio drukarek kwantowych może wpłynąć na rozwój nowych funduszy inwestycjnych tak dobrze wykorzystanych pieniedzy jak w rozwoju Block Chein ale bez afer krachów na giełdzie o stabilnym rozwoju gospodraczym i rolniczym i stabilnych dochodach na poznawanie 2 czy 1 miłości za granicą. Że ludzi jest stać na inwestycje w EFT czy inne fundusze auckcyjne czy rozwój technologi w taki sposób że są tanie transporty logistyczne. 
 Rozwój nanotechnologi może wpłynać na porzegananie się z lotto bez ryzyka i inwestowanie w stabilne ETF. 
 Wyjście z kryzysu i nie poleganie na Brystolu to handel nanomateriałami do produkcji np.: sprzętu medycznego lub muzycznego. 
+Radio drukarki kwantowe mogą drukować Brystol w dużej ilości zużyte sztucice z papieru można spalić w piecu aby wyprodukować energie elektryczną i znów je wydrukować. A nanomateriały stosować w przemyśle innym niż karze nam kura i kogut. A to są już przmysły z bajek i snów nie dla psa i nie dla sparty legi przestań 112 psa. 
